@@ -1,2 +1,10 @@
 # M0NSTERMENU
-Gorilla Tag Menu Currently A Work In Progress
+(Gorilla Tag Menu Currently A Work In Progress)
+
+
+THIS MOD MENU HAS BEEN IN WORK FOR 4 DAYS MADE BY LILmonster9285
+LILmonster9285 IS A SOLO VISUAL STUDIO GAME DEV WHO IS SEEKING TO BE UNKNOWN,
+BUT WANTS PEOPLE TO NOTICE.
+
+
+https://guns.lol/lilmonster9285
